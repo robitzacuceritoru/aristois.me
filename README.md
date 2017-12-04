@@ -1,2 +1,3 @@
 # aristois.me
-ayy
+maybe i post full sauce later
+enjoy 
